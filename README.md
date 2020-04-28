@@ -1,0 +1,2 @@
+# BSHACK
+only hacker
